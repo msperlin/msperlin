@@ -1,4 +1,4 @@
-### Hi there 👋
+### About me
 
 I'm an associate professor of Finance at EA/UFRGS. 
 
